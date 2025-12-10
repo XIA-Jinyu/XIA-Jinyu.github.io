@@ -1,3 +1,3 @@
-
-
-- School of Mathematics and Physics, Anqing Normal University 
+🏆 <font face="华文楷体">荣誉奖项</font>
+-  <font face="华文楷体"> 安庆师范大学第二届研究生“龙湖论坛”     &     二等奖</font>
+-  <font face="华文楷体">2025年 “正大杯”大学生市场调查与分析大赛 & 研究生组省级二等奖</font>
